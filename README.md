@@ -1,2 +1,2 @@
-# Rahajeng-Putri-Salsabila
-fou u my loveee
+# For u Rahajeng Putri Salsabila
+hadiah kecil untukmu semoga kamu suka 
